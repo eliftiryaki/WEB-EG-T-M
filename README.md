@@ -1,1 +1,1 @@
-# wEB'DE EĞİTİM
+# WEB'DE EĞİTİM
